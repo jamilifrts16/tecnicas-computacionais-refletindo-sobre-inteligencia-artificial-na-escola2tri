@@ -1,0 +1,1 @@
+# tecnicas-computacionais-refletindo-sobre-inteligencia-artificial-na-escola2tri
